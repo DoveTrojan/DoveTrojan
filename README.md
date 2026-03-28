@@ -7,6 +7,21 @@ or just ignore you...
 
 im not usually on without my friend Axon..
 
+don't call me petnames such as: Honey, Dear, darling ect ect just because my friend did.. we are close friends and i get uncomfortable when others do it
+
+<details>
+  <summary>status</summary>
+  online- open for talking
+  
+  away- i use this when I'm offtab or afk don't expect me to answer 
+  
+  DND- don't use this that much. but dont interact when i have this
+
+  chat- i dont use this
+  
+  roleplay-i dont use this
+  
+</details>
 
 <details>
   <summary>Fandoms</summary>
